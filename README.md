@@ -1,0 +1,1 @@
+I am just now learning that I was mentioned in a legal document pertaining to the OpenAI lawsuit. I have removed the project from GitHub. Should any of George R. R. Martin's representatives wish to reach out, my contact info remains available.
